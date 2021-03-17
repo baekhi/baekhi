@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @baekhi
 - 👀 I’m interested in BL-story
 - 🌱 I’m currently learning how to make 3D animation
-- 📫 You can reach me in instagram called exohjt
+- 📫 You can reach me in instagram（exohjt） 
 - 💞️ Hope we have good memories 
